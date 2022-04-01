@@ -1,1 +1,1 @@
-# This project is open source You Can Host On Repl.it which the project was made for so i recommend that
+# This project is open source you Can host on repl.it which the project was made for so i recommend that
